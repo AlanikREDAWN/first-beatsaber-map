@@ -5,3 +5,6 @@ Okay, so I've decided to use my study period today to start working on Hacksaber
 
 ## Oct 7, 2025 - 11ish AM
 I installed Chromapper, and now I just need to purchase Stargazing - Moonlight Version off of qobuz!
+
+## Oct 7, 2025 - 11:20ish AM
+I am currently reading the guides at https://bsmg.wiki/mapping/basic-audio.html
